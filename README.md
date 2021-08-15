@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TVvVvVT and i want die
+- 👀 I’m interested in die
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on learning java
+- 📫 How to reach me not yet
